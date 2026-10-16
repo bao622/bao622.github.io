@@ -1,13 +1,9 @@
+- Second Prize (National Level), China Robot and Artificial Intelligence Competition, 2026.
 
-- Outstanding Graduate Award (CUMT), 2025.
+- Meritorious Winner, Mathematical Contest in Modeling (MCM), 2025 & 2026.
 
-- National Scholarship for Graduate Students (Ministry of Education, China), 2024.
+- Second Prize (Provincial Level), China College Computer Design Competition, 2026.
 
-- First-Prize Graduate Academic Scholarship (CUMT), 2023 & 2024.
+- First Prize (Provincial Level), China Undergraduate Mathematical Contest in Modeling, 2025.
 
-- Outstanding Undergraduate Thesis Award (Jiangsu Provincial Dept. of Education, China), 2022.
-
-- First-Prize Corporate Scholarship (CUMT), 2020.
-
-- First-Prize Undergraduate Academic Scholarship (CUMT), 2019.
-
+- Third Prize (Provincial Level), China College Computer Design Competition, 2025.
